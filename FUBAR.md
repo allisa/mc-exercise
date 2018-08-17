@@ -5,3 +5,6 @@ There is a feature 2, Carol's one.
 Ted and alice are continuing the project now. Yep.
 
 New cool stuff yeahhhh.
+Bob and carol are the complete shit at coding. Be jealous.
+
+Ted and Alice round two. Let's do this right this time.
